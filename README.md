@@ -1,1 +1,1 @@
-# Recuperaci-_web_s-ntesis
+# Recuperacio_web_sintesis
